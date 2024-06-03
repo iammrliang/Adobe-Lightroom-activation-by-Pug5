@@ -1,0 +1,1 @@
+# Adobe-Lightroom-activation-by-Pug5
